@@ -1,3 +1,15 @@
-## **Hi There!**
+# **Hello! We Are PrayoadMii's Software**
 
-**We're Just A Newbie That's Still Learning Things To Get Ready For Something Cool!**
+**Yes Another GitHub Organizations**
+
+---
+
+### **Who Are We?**
+
+**We're Here To Help [PrayoadMii](https://github.com/prayoadmii) Develop A Cool Projects**
+
+---
+
+### **Wanna Meet Or Talk With The Team?**
+
+- **Discord: https://discord.prayoadmii.qzz.io/**
